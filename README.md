@@ -1,2 +1,2 @@
 # hellow-world
-Gettign started
+Gettign started:let's correct those typos.. Getting started ...
